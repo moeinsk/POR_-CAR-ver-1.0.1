@@ -55,8 +55,8 @@ Crator Words:
   
   
   
+Communication paths  
   
-  
-MY TELEGRAM : @moeinprosk
-MY INSTAGRAM : @moein.s_23
-My motto : just every where rnjoy it :)
+    MY TELEGRAM : @moeinprosk
+    MY INSTAGRAM : @moein.s_23
+    My motto : just every where rnjoy it :)
