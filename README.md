@@ -65,4 +65,4 @@ Communication paths
 
 My motto : 
 
-    just every where rnjoy it :)
+    just every where enjoy it :)
