@@ -18,7 +18,7 @@ about:
     TIME
     RANDOM
  
- instalion:
+Installation:
  
  
  
@@ -41,8 +41,8 @@ Crator Words:
 
     Like all other things, this project is without flaws, so if you have a comment, PLEASE share with me.
     Meanwhile, this game is the first Do not be tight
-    MY TELEGRAM : @moeinprosk
-    MY INSTAGRAM : @moein.s_23
+    MY TELEGRAM : @mpspy
+    MY INSTAGRAM : @mpspyy
     
   
   
@@ -59,8 +59,8 @@ Crator Words:
   
 Communication paths  
   
-    MY TELEGRAM : @moeinprosk
-    MY INSTAGRAM : @moein.s_23
+    MY TELEGRAM : @mpspy
+    MY INSTAGRAM : @mpspyy
     
 
 My motto : 
