@@ -60,9 +60,3 @@ Crator Words:
 Communication paths  
   
     MY TELEGRAM : @mpspy
-    MY INSTAGRAM : @mpspyy
-    
-
-My motto : 
-
-    just every where enjoy it :)
